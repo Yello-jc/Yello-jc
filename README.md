@@ -7,7 +7,7 @@
 - 🫶 Fun fact: I enjoy listening to music and singing.
 
                                 My blog can be found here 👉http://ctrlread.blogspot.com/👈
-                ⚠️Please note that this blog is currently under revision, resulting in inconsistent updates. ⚠️
+                ⚠️ Please note that this blog is currently under revision, resulting in inconsistent updates. ⚠️
 
 
 <!---
